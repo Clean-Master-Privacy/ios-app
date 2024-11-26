@@ -1,9 +1,9 @@
 # Clean Master Privacy
 About Clean Master Privacy
 
-RAM, File, Virus Cleaner, Phone Booster for İos
+RAM, File, Virus Cleaner, Phone Booster for iphone
 
-With over 1 billion users worldwide, Clean Master Privacy can be your app tool to clean viruses, free up storage space and speed up İos phone. We offer powerful Antivirus, Junk File Cleaner and Phone Booster, among other features that protect your privacy and mobile security.
+With over 1 billion users worldwide, Clean Master Privacy can be your app tool to clean viruses, free up storage space and speed up iphone phone. We offer powerful Antivirus, Junk File Cleaner and Phone Booster, among other features that protect your privacy and mobile security.
 
 Key Features of Clean Master Privacy:
 
